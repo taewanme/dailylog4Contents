@@ -1,0 +1,1 @@
+# dailylog4Contents
